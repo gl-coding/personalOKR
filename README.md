@@ -17,7 +17,7 @@ Personal OKR is a productivity app that helps you plan and track your personal g
 
 If you have any questions, issues, or feedback, please contact us:
 
-- **Email**: guolei1647202050@gmail.com
+- **Email**: cool3stone@gmail.com
 
 ## FAQ
 

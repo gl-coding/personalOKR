@@ -42,7 +42,7 @@ We may update this Privacy Policy from time to time. Any changes will be reflect
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-- **Email**: guolei1647202050@gmail.com
+- **Email**: cool3stone@gmail.com
 
 ## Copyright
 
